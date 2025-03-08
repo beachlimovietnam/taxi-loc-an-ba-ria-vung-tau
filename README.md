@@ -42,7 +42,7 @@ Trong số các dịch vụ taxi hoạt động tại Đất Đỏ, Taxi Lộc A
 🚖 Xe đời mới, đảm bảo sạch sẽ, an toàn tuyệt đối.
 🚖 Tài xế chuyên nghiệp, thân thiện và thông thạo mọi tuyến đường.
 🚖 Phục vụ 24/7, sẵn sàng hỗ trợ khách hàng mọi lúc, mọi nơi.
-Đọc thêm tại bài viết: [Taxi Lộc An](https://beachlimo.info/post/taxi-loc-an-ba-ria-vung-tau)
+- Đọc thêm tại bài viết: [Taxi Lộc An](https://beachlimo.info/post/taxi-loc-an-ba-ria-vung-tau)
 
 ### BeachLimo – Nền Tảng Đặt Taxi Trực Tuyến Uy Tín Top 1 tại khu vực TP. Hồ Chí Minh, Đồng Nai, Bình Dương, Bà Rịa Vũng Tàu, Phan Thiết, Mũi Né, Đà Lạt.
 BeachLimo là hệ thống cho thuê xe online, chuyên cung cấp dịch vụ thuê xe 4, 7, 16 chỗ an toàn, cao cấp với mức giá cố định, minh bạch. Chúng tôi cam kết mang đến trải nghiệm di chuyển chuyên nghiệp, nhanh chóng, linh hoạt 24/7, tối ưu cho mọi nhu cầu từ đi làm, du lịch đến đưa đón sân bay và các chuyến đi đường dài.
@@ -50,7 +50,7 @@ Với đội xe hiện đại, tài xế chuyên nghiệp và dịch vụ khách
 
 ### Liên hệ ngay để đặt xe nhanh chóng!
 BeachLimo - Nền Tảng Thuê Xe, Đặt Taxi Online
-Address: A75 Bạch Đằng, Phường 2, Tân Bình, TP. Hồ Chí Minh
-Phone: 0565669339
-Website: https://beachlimo.info
-Email: info@beachlimo.info
+- Address: A75 Bạch Đằng, Phường 2, Tân Bình, TP. Hồ Chí Minh
+- Phone: 0565669339
+- Website: https://beachlimo.info
+- Email: info@beachlimo.info
